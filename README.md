@@ -1,0 +1,1 @@
+# mercadinho_me_contrata
